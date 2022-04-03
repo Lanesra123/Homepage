@@ -1,1 +1,1 @@
-![LiuYifanPicture](https://user-images.githubusercontent.com/102599747/161419594-54c5ea86-8d29-4d12-a6eb-6a3692285f53.jpg)
+![LiuYifanPicture](https://user-images.githubusercontent.com/102599747/161419733-65d9460e-6d0f-4eb0-a9ff-1513caca64d4.jpg)
